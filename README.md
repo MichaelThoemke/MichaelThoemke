@@ -6,6 +6,8 @@ Ph#(808)269-3986
 
 email: mauimichael@earthlink.net
 
+based out of Maui, Hawaii
+
 
 
 
